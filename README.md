@@ -1,4 +1,4 @@
-## Hi there 👋
+<img src="https://file.garden/aOvxYPBe6gwrFoVB/868F55FB-608D-43A2-B0F0-40FC92F39780.png.png">
 
 <!--
 **rrrashomon/rrrashomon** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
