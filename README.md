@@ -2,6 +2,6 @@
 
 sign my [ata](https://kazuakus.atabook.org/) for a unicorn cupcake
 
-dont whisper me if it has anything to do with my supporter ill just ignore u #Sorry
-
 im 15 and very happily taken no flirting AT ALL thanksies
+
+im not super talkative but i love cuddles pelase cuddle with me or else i will die.
