@@ -1,4 +1,4 @@
-sign my [ata](https://kazuakus.atabook.org/) or else
+sign my [ata](https://kazuakus.atabook.org/) or else.
 
 im 15 and very happily taken no flirting AT ALL thanksies
 
