@@ -1,4 +1,5 @@
 sign my [ata](https://kazuakus.atabook.org/) or else.
+this is my [strawpage](https://onetabicat.straw.page) its mainly 4 twitter tho ;_;
 
 im 15 and very happily taken (hi jay😳) no flirting AT ALL thanksies
 
