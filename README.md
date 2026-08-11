@@ -1,7 +1,7 @@
 sign my [ata](https://tabicat.atabook.org/) or else.
 this is my [strawpage](https://onetabicat.straw.page) its mainly 4 twitter tho ;_;
 
-im 16 and very happily taken (hi jay😳) no flirting AT ALL thanksies
+im 16 dont b weird with me ok thanks
 
 im not super talkative but i love cuddles pelase cuddle with me i have touch comfort or watever its called
 
