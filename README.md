@@ -11,7 +11,7 @@ huge queens of the stone age & nine inch nails fan
 
 i have memory issues and dont know who a lot of the people on my friendslist are so im probably gonna forget who u are if we dont interact every now and then IF. we are friends
 
-![](https://komarev.com/ghpvc/?username=rrrashomon&color=c90000&style=flat&label=cute+kitties&base=1500)
+![](https://komarev.com/ghpvc/?username=rrrashomon&color=c90000&style=flat&label=꒰𝄞&base=1500)
 
 
 im not making hthis pretty im so f*cking sorry.
