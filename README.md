@@ -9,7 +9,7 @@ also im afk/offtab a lot i promise im not trying 2 ignore u
 
 huge queens of the stone age & nine inch nails fan
 
-i have memory issues and dont know who a lot of the people on my friendslist are so chances are i will forget who u are if we dont interact every now and then
+i have memory issues and dont know who a lot of the people on my friendslist are so im probably gonna forget who u are if we dont interact every now and then IF. we are friends
 
 ![](https://komarev.com/ghpvc/?username=rrrashomon&color=c90000&style=flat&label=cute+kitties&base=1500)
 
